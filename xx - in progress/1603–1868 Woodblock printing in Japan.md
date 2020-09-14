@@ -1,0 +1,3 @@
+Woodblock printing in Japan (木版画, mokuhanga) is a technique best known for its use in the ukiyo-e artistic genre of single sheets, but it was also used for printing books in the same period. Widely adopted in Japan during the Edo period (1603–1868) and similar to woodcut in Western printmaking in some regards, the mokuhanga technique differs in that it uses water-based inks—as opposed to western woodcut, which typically uses oil-based inks. The Japanese water-based inks provide a wide range of vivid colors, glazes, and transparency.
+
+https://en.wikipedia.org/wiki/Woodblock_printing_in_Japan
